@@ -1,1 +1,1 @@
-Lazy people make the world intersting 
+Lazy people make the world interesting
